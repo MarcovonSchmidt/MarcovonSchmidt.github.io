@@ -8,3 +8,6 @@ Um diese Fähigkeiten herbeizurufen, schließt der Marshall die Augen und ruft i
 * gerecht
 * loyal
 * naturverbunden
+
+## Bravestar sagte:
+> Big Partner
