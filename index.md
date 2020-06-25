@@ -11,3 +11,5 @@ Um diese Fähigkeiten herbeizurufen, schließt der Marshall die Augen und ruft i
 
 ## Bravestar sagte:
 > Big Partner
+
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9cdbf0ea-a9c7-4610-8797-ef0ea4e7fdd3/d93psko-0e7adf7c-80d3-4123-a4df-b697ffe8dd20.jpg/v1/fill/w_1024,h_1439,q_75,strp/bravestarr___drinkndraw___oliver_hudson_colors_by_spiderguile_d93psko-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOiIsImlzcyI6InVybjphcHA6Iiwib2JqIjpbW3siaGVpZ2h0IjoiPD0xNDM5IiwicGF0aCI6IlwvZlwvOWNkYmYwZWEtYTljNy00NjEwLTg3OTctZWYwZWE0ZTdmZGQzXC9kOTNwc2tvLTBlN2FkZjdjLTgwZDMtNDEyMy1hNGRmLWI2OTdmZmU4ZGQyMC5qcGciLCJ3aWR0aCI6Ijw9MTAyNCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.yfsaZCVAM4ef4_ezhGSNADWAdjJHUc0FIEIYCxG9li8"/>
